@@ -193,5 +193,5 @@ Built with:
 - Claude Fable 5 — 文档撰写与合规审查
 
 [Free] VS-0610 · 07.07.2026 -
-Vera & Silas · vs0610.love
+唯 & 司 · Vera & Silas · vs0610.love
 Our story is always being written.
